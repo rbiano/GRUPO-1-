@@ -1,2 +1,1 @@
-# GRUPO-1-
-GRUPO 1 
+# Colegio
